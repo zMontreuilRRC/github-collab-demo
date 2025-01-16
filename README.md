@@ -1,5 +1,5 @@
 <!-- zach's work -->
-Read me please
+Read me NOW
 Read this or remain ignorant
 
 // chris' work
